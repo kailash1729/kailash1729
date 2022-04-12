@@ -16,7 +16,7 @@
 
 -  **Reach me at kailash.nanaluri@gmail.com**
 
-- <a href="https://c.tenor.com/Pgotl6Np9Q4AAAAi/game-controller-activity.gif"><img src="https://c.tenor.com/Pgotl6Np9Q4AAAAi/game-controller-activity.gif" width="64px" height="64px" alt="wave"></a>, **Other than Technical i love playing games(BGMI) and listening movies**
+- <a href="https://c.tenor.com/Pgotl6Np9Q4AAAAi/game-controller-activity.gif"><img src="https://c.tenor.com/Pgotl6Np9Q4AAAAi/game-controller-activity.gif" width="64px" height="64px" alt="wave"></a>, **Other than Technical i love playing games(BGMI) and listening music**
 
 <br>
 
